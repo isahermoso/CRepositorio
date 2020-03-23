@@ -1,2 +1,2 @@
 # CRepositorio
-practica 4 del instituto
+Hola Carmen, soy kike espero que estés aprendiendo.
